@@ -22,6 +22,10 @@ London, **United Kingdom** or **Online**
 13 May 2022  
 Brussels, **Belgium** and **Online**
 
+[**IT Security Summit 2022**](https://it-security-summit.de/muenchen)  
+16. - 18. May 2022  
+Munich, **Germany**
+
 [**webinale 2022**](https://webinale.de/en/)  
 30 May - 3 June 2022  
 Berlin, **Germany** or **Online**
